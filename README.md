@@ -12,6 +12,6 @@ Meu nome é Alesson Kaue Gelaski
 
 gelaski.alesson@escola.pr.gov.br
 🇧🇷 @Kaue_gelaski
+:Apaixonado por motos
 
-
-![](https://media.tenor.com/AvPqyreIUaoAAAAC/brazino-jogo-da-galera.gif)
+![](https://media.tenor.com/WRic8Avf9q8AAAAj/riding-tricks.gif)
